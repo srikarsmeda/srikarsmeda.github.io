@@ -8,7 +8,7 @@ the choices we make in our lives are dictated by this story we tell ourselves.
 
 and your personal philosophy is not static, it evolves, wat works at certain stages of life may seem immature at other stages
 
-Consider aspects from all philosophies that help to build a ‘good’ life, keep the best and ditch the rest. only you yourself can decide which aspects those will be.
+consider aspects from all philosophies that help to build a ‘good’ life, keep the best and ditch the rest. only you yourself can decide which aspects those will be.
 
 the process of writing down stuff helps me ponder upon my thoughts and in a way serves as a memoir of my thoughts and ideas that would later be bygones. a thought in the brain that stays a thought never gets born.
 
