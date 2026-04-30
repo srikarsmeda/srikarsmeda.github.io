@@ -1,7 +1,5 @@
-hola
+ciao
 
-am i visible
+this is srikar
 
-ghar pe kaise hai sab
-
-aunty ko bolna im sending my love
+trying to build something.
