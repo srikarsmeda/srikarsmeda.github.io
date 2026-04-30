@@ -2,7 +2,9 @@ ciao
 
 this is srikar
 
-as we move through life, i believe that everyboy develops an induviual worldview, opinion and perspective amounting to philosophy
+est. 22/04/2026
+
+i believe that as everyone moves through life, we develop an induvial worldview, opinions and perspectives amounting to personal philosophy
 
 the choices we make in our lives are dictated by this story we tell ourselves.
 
