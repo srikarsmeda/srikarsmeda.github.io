@@ -22,6 +22,3 @@ this is also my way to speak to the world, often which im unable to do, through 
 say yes to life.
 
 inspired by the g-chi
-
-remote_theme: killercup/jekyll-theme-scribbles
-
