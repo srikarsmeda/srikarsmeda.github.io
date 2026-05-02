@@ -23,4 +23,5 @@ say yes to life.
 
 inspired by the g-chi
 
-remote_theme:killercup/jekyll-theme-scribbles
+remote_theme: killercup/jekyll-theme-scribbles
+
