@@ -4,11 +4,11 @@ this is srikar
 
 est. 22/04/2026
 
-i believe that as everyone moves through life, we develop an induvial worldview; opinions and perspectives amounting to personal philosophy
+i believe that as everyone moves through life, we develop an induviual worldview; opinions and perspectives amounting to personal philosophy
 
 the choices we make in our lives are dictated by this story we tell ourselves.
 
-and your personal philosophy is not static, it evolves, wat works at certain stages of life may seem immature at other stages
+and your personal philosophy is not static, it evolves, what works at certain stages of life may seem immature at other stages
 
 consider aspects from all philosophies that help to build a ‘good’ life, keep the best and ditch the rest. only you yourself can decide which aspects those will be.
 
@@ -22,3 +22,13 @@ this is also my way to speak to the world, often which im unable to do, through 
 say yes to life.
 
 inspired by the g-chi
+
+i have this one wish to be unique or special; amongst a group of peers, i wonder if it is inherent with everyone, or something that you yearn for as you grow older
+
+we hurt the ones we love the most.
+
+it is to my belief that nothing is a loss if the goal is to experience
+and similarly that exposure is the mother of all learning, i.e you learn exponentially by being exposed to a variety and multitude of things
+
+fear of perception and judgement has embraced me throughout my life and that is something i've pondered a lot upon - https://srikarsmeda.medium.com/fear-%E0%B2%AD%E0%B2%AF-%E0%A4%A1%E0%A4%B0-a108448bb35c
+
