@@ -32,3 +32,17 @@ and similarly that exposure is the mother of all learning, i.e you learn exponen
 
 fear of perception and judgement has embraced me throughout my life and that is something i've pondered a lot upon - https://srikarsmeda.medium.com/fear-%E0%B2%AD%E0%B2%AF-%E0%A4%A1%E0%A4%B0-a108448bb35c
 
+Living in the past leads to depression, living in the future leads to anxiety, living in the now leads to happiness.
+
+By continually living in our head, we become disconnected from the flow of life — which is only ever found right here, in the present moment.
+
+“You always own the option of having no opinion. There is never any need to get worked up or to trouble your soul about things you can't control. These things are not asking to be judged by you. Leave them alone.”
+
+~ Marcus Aurelius
+
+Nothing matters beyond the meaning you attach to it.
+
+Detachment does not mean indifference.
+
+
+
