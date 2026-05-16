@@ -44,5 +44,14 @@ Nothing matters beyond the meaning you attach to it.
 
 Detachment does not mean indifference.
 
+i yearn for stability but also yearn for something extraordinary, i don't think they go hand in hand
+
+anxiously bored
+
+overthinking has almost sort of become this enigma to me
+
+i feel like i am waiting to live, i want to live
+
+maybe things are not that deep lmao, i see the carefree ones being the most relaxed, maybe the balance is what i want to strike
 
 
